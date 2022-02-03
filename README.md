@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @Oooooiii
+Hi there, Oooooiii - aka [O.o] 👋
+I am ...
